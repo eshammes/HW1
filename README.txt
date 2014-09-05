@@ -1,2 +1,2 @@
 Evan Hammes
-Chicago White Sox
+My favorite baseball team is the Iowa Hawkeyes
